@@ -8,3 +8,7 @@ estoy en _segundo curso_
 Actualmente me gustan mucho los videojuegos y viajar,
 aunque antes hacía Hapkido que eran artes marciales.
 Llegué a cinturón naranja y estuve allí casi una década.
+
+# Películas
+
+Mi película más odiada es Cars porque no me gusta nada
