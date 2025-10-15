@@ -11,4 +11,4 @@ Llegué a cinturón naranja y estuve allí casi una década.
 
 # Películas
 
-Mi película más odiada es Cars porque no me gusta nada.
+Mi película favorita actualmente es Cars y lo lleva siendo desde que la volví a ver hace 3 años.
